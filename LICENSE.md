@@ -1,4 +1,4 @@
-# 
+# ultimate JetBrains IntelliJ IDEA for PC scripts is the best JetBrains IntelliJ IDEA for PC scripts with collaboration-tools and schema-comparison. Safe, reliable, and optimized
 
 
 
